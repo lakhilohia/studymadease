@@ -1,2 +1,2 @@
-# studymadease
-studymadease which provides all kinds of coaching courses
+# RIDE SHARE 
+ULTIMATE DESTINATION FOR ALL YOUR RIDING NEEDS
